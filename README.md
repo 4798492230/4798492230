@@ -1,4 +1,6 @@
-### Hi there 👋
+jorgepatricio529@gmail.com
+beenverifid
+
 
 <!--
 **4798492230/4798492230** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
